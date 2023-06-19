@@ -10,4 +10,5 @@ You can click the Preview link to take a look at your changes.
 --->
 sou  muito legal e inteligente 
 Voce pode me  encontrar por meio do @escola 
-@fabricio.bochi@escola.pr.gov.br
+@fabricio.bochi@escola.pr.gov.
+-sou mito legal e inteligente 
